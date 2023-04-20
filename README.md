@@ -1,4 +1,4 @@
-# it-cretifications
+# icerertifications
 IT certifications
 
 
