@@ -1,4 +1,3 @@
-# icerertifications
 IT certifications
 
 
