@@ -16,7 +16,7 @@ https://zendvn.com/offline-hoc-vien-pham-dang-ninh-756 <br/>
 ![offline-hoc-vien-pham-dang-ninh-756](https://user-images.githubusercontent.com/89170990/233416142-330b2fb2-8be3-457d-b732-9b03fc0e3a1c.png)
 
 
-9-2022
+9-2022 <br/>
 Web Design for Everybody:Basics of Web Development & Coding <br/>
 https://www.coursera.org/account/accomplishments/specialization/certificate/V3KUBG2BJXXH <br/>
 [Coursera V3KUBG2BJXXH.pdf](https://github.com/ninhpd-sefr/it-cretifications/files/11287984/Coursera.V3KUBG2BJXXH.pdf) <br/>
