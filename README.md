@@ -30,6 +30,11 @@ https://www.zendvn.com/offline-hoc-vien-pham-dang-ninh-550 <br/>
 ![offline-hoc-vien-pham-dang-ninh-550](https://user-images.githubusercontent.com/89170990/233415926-111e7ec3-0bc8-4fb1-ba84-530890ea3151.jpg)
 
 
+6-2022 <br/>
+Computer Communications br/>
+https://coursera.org/share/1689015fccf901abaadba480515bd2e6 <br/>
+[Coursera SLT7DNEQT3XP.pdf](https://github.com/ninhpd-sefr/it-certifications/files/11366106/Coursera.SLT7DNEQT3XP.pdf)
+
 
 
 
