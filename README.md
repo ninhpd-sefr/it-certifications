@@ -31,7 +31,7 @@ https://www.zendvn.com/offline-hoc-vien-pham-dang-ninh-550 <br/>
 
 
 6-2022 <br/>
-Computer Communications br/>
+Computer Communications <br/>
 https://coursera.org/share/1689015fccf901abaadba480515bd2e6 <br/>
 [Coursera SLT7DNEQT3XP.pdf](https://github.com/ninhpd-sefr/it-certifications/files/11366106/Coursera.SLT7DNEQT3XP.pdf)
 
