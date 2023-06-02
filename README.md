@@ -1,5 +1,10 @@
 IT certifications
 
+5-2023 <br/>
+CertNexus Certified Ethical Emerging Technologist <br/>
+https://www.coursera.org/account/accomplishments/specialization/certificate/6KTUYAM2QCPT <br/>
+[Coursera 6KTUYAM2QCPT.pdf](https://github.com/ninhpd-sefr/it-certifications/files/11631116/Coursera.6KTUYAM2QCPT.pdf) <br/>
+
 
 
 
