@@ -1,11 +1,19 @@
 IT certifications
 
+
+
+5-2024 <br/>
+User Experience Research and Design <br/>
+[[https://www.coursera.org/account/accomplishments/specialization/certificate/6KTUYAM2QCPT](https://coursera.org/share/72bfd0b6edf7137de9057a3205a98482)](https://coursera.org/share/f1a842d912a9cf5e7e06f6c655547051) <br/>
+
 1-2024 <br/>
 Project Management Principles and Practices <br/>
 [https://www.coursera.org/account/accomplishments/specialization/certificate/6KTUYAM2QCPT](https://coursera.org/share/72bfd0b6edf7137de9057a3205a98482) <br/>
 
 
-
+9-2023 <br/>
+Academic English: Writing <br/>
+[[https://www.coursera.org/account/accomplishments/specialization/certificate/6KTUYAM2QCPT](https://coursera.org/share/72bfd0b6edf7137de9057a3205a98482) ](https://coursera.org/share/19f5d98cef8acb085ea83eab68aaa832)<br/>
 
 5-2023 <br/>
 CertNexus Certified Ethical Emerging Technologist <br/>
