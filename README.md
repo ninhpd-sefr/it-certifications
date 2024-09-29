@@ -1,5 +1,12 @@
 IT certifications
 
+1-2024 <br/>
+Project Management Principles and Practices <br/>
+[https://www.coursera.org/account/accomplishments/specialization/certificate/6KTUYAM2QCPT](https://coursera.org/share/72bfd0b6edf7137de9057a3205a98482) <br/>
+
+
+
+
 5-2023 <br/>
 CertNexus Certified Ethical Emerging Technologist <br/>
 https://www.coursera.org/account/accomplishments/specialization/certificate/6KTUYAM2QCPT <br/>
